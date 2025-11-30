@@ -1,1 +1,2 @@
-# Yaz-l-m-m-hendisli-i-oryantasyon-devi
+https://www.youtube.com/@MetehanSalihoglu-h9e
+https://www.youtube.com/watch?v=rjr5VlsE0AE
